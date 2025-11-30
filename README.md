@@ -1,1 +1,1 @@
-# Hi, I'm Bilol Bakhtiyorov <img src="https://media0.giphy.com/media/v1.Y2lkPTc5MGI3NjExbGR1dnJnbWN6eTV5OHZvdnk5OHE3NmR5bzk4OThtb2xqcnVhaWd0YSZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/gM5qFksULw54NMWyry/giphy.gif" width="30px">
+# Hi, I'm Bilol Bakhtiyorov <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="30px">
